@@ -1,1 +1,0 @@
-# KoHasegawa.github.io
